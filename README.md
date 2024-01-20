@@ -1,0 +1,1 @@
+# JS-DIO_Potencia_TechI_IFood-Calculadora_Partidas_Rankeadas-
